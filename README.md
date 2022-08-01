@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Nerdamis6
+- 👋 Hi, I’m @Nerdamis6 AKA Allison Huddleston
 - 👀 I’m interested in expanding my mind
 - 🌱 I’m currently learning data analysist 
 - 💞️ I’m looking to collaborate on anything you need!
