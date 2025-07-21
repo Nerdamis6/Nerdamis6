@@ -2,7 +2,7 @@
 - 👀 I’m interested in expanding my mind
 - 🌱 I’m a certified data analysist through Thinkful
 - 💞️ I’m looking to collaborate on anything you need!
-- 📫 How to reach me aphuddleston2019@gmail.com or apalfarsno@gmail.com
+- 📫 How to reach me aphuddleston2019@gmail.com or apalfarano@gmail.com
 - Also on any Social Media @Nerdamis
 - Hope I get to see you all soon!
 - "And so she started living the life she dreamt"
