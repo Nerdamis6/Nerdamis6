@@ -1,5 +1,8 @@
-- 👋 Hi, I’m @Nerdamis6 AKA Allison Huddleston
+- 👋 Hi, I’m @Nerdamis6 AKA Allison Alfarano
 - 👀 I’m interested in expanding my mind
-- 🌱 I’m currently learning data analysist 
+- 🌱 I’m a certified data analysist through Thinkful
 - 💞️ I’m looking to collaborate on anything you need!
-- 📫 How to reach me aphuddleston2019@gmail.com
+- 📫 How to reach me aphuddleston2019@gmail.com or apalfarsno@gmail.com
+- Also on any Social Media @Nerdamis
+- Hope I get to see you all soon!
+- "And so she started living the life she dreamt"
