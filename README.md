@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Nerdamis6 AKA Allison Alfarano
+- 👋 Hi, I’m @Nerdamis AKA Allison Alfarano
 - 👀 I’m interested in expanding my mind
 - 🌱 I’m a certified data analysist through Thinkful
 - 💞️ I’m looking to collaborate on anything you need!
